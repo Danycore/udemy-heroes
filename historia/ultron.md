@@ -1,0 +1,7 @@
+## Ultron
+
+# Historia
+
+Ultron es un supervillano ficticio que aparece en los cómics publicados por Marvel Comics. Un robot consciente de sí mismo y altamente inteligente creado por Hank Pym, el personaje generalmente se representa como un oscuro reflejo de su creador y le guarda un fuerte rencor. El objetivo de Ultron de destruir a la humanidad a menudo lo ha llevado a entrar en conflicto con los Vengadores, quienes siempre lograron frustrarlo y destruirlo, pero regresaría una y otra vez. Aunque por lo general controla una legión de drones sin sentido conocidos como Ultron Centinelas para ayudarlo a lograr sus objetivos, Ultron también ha sido parte de varios equipos de supervillanos. El personaje se destaca por ser el primero en manejar el adamantium de aleación de metal ficticio1​ y por su creación (en la historia) del personaje de Marvel Comics, Visión.2​1​
+
+Ultron ha aparecido en varias adaptaciones de medios a lo largo de los años, incluidas series animadas y videojuegos. Tom Kane y Jim Meskimen son los actores más destacados para proporcionar la voz del personaje. Ultron hizo su debut de acción en vivo en la película de Marvel Cinematic Universe, Avengers: Age of Ultron (2015) interpretado por James Spader.

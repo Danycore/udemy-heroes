@@ -1,4 +1,4 @@
-# Heroes
+# Heroes DC
 
 * Superman
 * Batman
@@ -9,3 +9,13 @@
 * Volcán Negro
 * Atom
 * Linterna Verde
+
+# Heroes Marvel
+* Iron Man
+* Black Widow
+* Hulk
+* Thor
+* Hawk Eye
+* Scarlet Witch
+* Vision
+* Quick Silver
